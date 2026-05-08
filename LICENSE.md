@@ -1,4 +1,4 @@
-
+jujutsu shenanigans new Script offers the most advanced jujutsu shenanigans Script, with speed and silent aim. Perfect for dominating any match.
 
 
 
